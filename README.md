@@ -6,7 +6,7 @@
 	- literally sounds like its on some shrooms
 - Liszt - Mephisto Waltz No 1, S 514
 	- https://www.youtube.com/watch?v=KJbg9V2KnD8
-	- this one is so ~edgy~
+	- this one is so *edgy*
 - Arno Babadjanian - Vagharshapat Dance
 	- https://www.youtube.com/watch?v=3zaaZ0Iwfho
 	- this song is a fun drunk
