@@ -3,7 +3,14 @@
 ## 🔥fire 
 - Beethovan - Piano Sonata No. 23 “Appassionata” 3rd movement
 	- love Lugansky's performance https://www.youtube.com/watch?v=Ns7NNMQ88w0
- 
+- Beethoven - Cello Sonata No. 3 in A major Op. 69
+	- https://www.youtube.com/watch?v=kMUOX8Ng5OY
+	- the fire, the plot twists in this one!!!
+- Bach/Busoni - Chaconne from Partita No. 2 in D minor
+	- https://www.youtube.com/watch?v=dOHiI_5yycU
+   	- Helene is queen!
+	- just wow I was already hooked with the opening chord
+
 ## songs that sound like they are on drugs
 - Chaminade - Arabesque No 1, Op 61
 	- https://www.youtube.com/watch?v=It_Mfs0loZ4
@@ -11,9 +18,6 @@
 - Liszt - Mephisto Waltz No 1, S 514
 	- https://www.youtube.com/watch?v=KJbg9V2KnD8
 	- this one is so *edgy*
-- Arno Babadjanian - Vagharshapat Dance
-	- https://www.youtube.com/watch?v=3zaaZ0Iwfho
-	- this song is a fun drunk
 - Czerny - Etude no.50 op.740
 	- https://www.youtube.com/watch?v=jKJWfUTmZeQ
 	- woah who knew czerny could be dope huh
@@ -26,7 +30,6 @@
 - Schubert Piano Sonata No 21 in C minor, D 958, Allegro
 	- https://www.youtube.com/watch?v=ltvKcZ9U5QA
 	- starts off like a discount Pathetique, but its j chilling in like 3 seconds
-	- ma boi is crisp af
 - Rach, moment no 4
 	- [https://www.youtube.com/watch?v=WhLDse5R8dQ](https://www.youtube.com/watch?v=WhLDse5R8dQ)
 	- more intense version of Revolutionary Etude
@@ -53,9 +56,6 @@
 - Chopin - Etude in F minor Op. 10 No. 9
 	- https://www.youtube.com/watch?v=QReE8daKpJw
 	- yay our fav sad boi prodigy composer
-- Bach/Busoni - Chaconne from Partita No. 2 in D minor
-	- https://www.youtube.com/watch?v=dOHiI_5yycU
-	- just wow I was already hooked with the opening chord
 
 ## so beautiful it hurts
 - Tchaikovsky - Nocturne in D minor, Op 19 No 4
@@ -63,7 +63,7 @@
 	- i swear you will be humming the melody within seconds
 - Mendelssohn Songs Without Words Op.30 no.1
 	- https://www.youtube.com/watch?v=CawkVQwA1n4
-	- a lil sappy but ayy we still like it
+	- a lil sappy but we still like it
 - Mendelssohn: 3 Etudes, Op. 104b: No 1
 	- https://www.youtube.com/watch?v=3lzO5w49yew
 	- flows like water thats been through a softener not like this shitty hard water we have here in cali
@@ -85,9 +85,7 @@
 - Bach English Suite No 6 BWV 811 D minor Prelude
 	- https://www.youtube.com/watch?v=IY0KTBQD3bQ
 	- my fav english suite prelude
-- Beethoven - Cello Sonata No. 3 in A major Op. 69
-	- https://www.youtube.com/watch?v=kMUOX8Ng5OY
-	- the fire, the plot twists in this one!!!
+
 
 ## 200 year pieces
 as in even if you practice every day for 200 years uhh you might still not be able to play these pieces 
