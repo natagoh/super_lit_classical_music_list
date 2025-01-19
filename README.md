@@ -1,5 +1,9 @@
 # super lit classical music playlist
 
+## 🔥fire 
+- Beethovan - Piano Sonata No. 23 “Appassionata” 3rd movement
+	- love Lugansky's performance https://www.youtube.com/watch?v=Ns7NNMQ88w0
+ 
 ## songs that sound like they are on drugs
 - Chaminade - Arabesque No 1, Op 61
 	- https://www.youtube.com/watch?v=It_Mfs0loZ4
@@ -51,7 +55,7 @@
 	- yay our fav sad boi prodigy composer
 - Bach/Busoni - Chaconne from Partita No. 2 in D minor
 	- https://www.youtube.com/watch?v=dOHiI_5yycU
-	- will give u shivers
+	- just wow I was already hooked with the opening chord
 
 ## so beautiful it hurts
 - Tchaikovsky - Nocturne in D minor, Op 19 No 4
